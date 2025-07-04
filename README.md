@@ -23,6 +23,6 @@
 
 通过高质量的内容、优化的用户体验和有效的推广策略，可以有效提升“日本AV免费”关键词的排名，并增加网站的长期竞争力。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/vv20250704/vv03 ）</span>
 
 
